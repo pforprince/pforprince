@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **work.princebansal@gmail.com**
 
-- 📄 Know about my experiences [princebansal.com](princebansal.com)
+- 📄 Know about my experiences [princebansal.com](https://princebansal.com)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
